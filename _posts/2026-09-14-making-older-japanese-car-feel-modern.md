@@ -1,6 +1,7 @@
 ---
-title: Making an Older Japanese Car Feel More Modern
-date: YYYY-MM-DD
+layout: post
+title: "Making an Older Japanese Car Feel More Modern"
+date: 2026-09-14
 ---
 
 Older Japanese cars have a character that newer vehicles cannot always reproduce, but age also brings limitations. Owners often want to preserve the personality of an older car while making it easier to drive and maintain. That balance can be seen in a **nissan 240sx**, an **ls400 modded** build, and the pursuit of **toyota 86 performance upgrades**.
