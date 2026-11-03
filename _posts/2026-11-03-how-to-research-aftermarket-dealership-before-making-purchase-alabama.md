@@ -1,7 +1,8 @@
-
+---
 layout: post
 title: "How to Research a Car Dealership Before Making a Purchase in Alabama"
 date: 2026-11-02
+---
 
 Buying a car is a major financial decision, so researching a dealership before visiting the showroom can help Alabama buyers avoid confusion and make a more informed choice. Whether you are looking for an affordable used vehicle, a family SUV, or a new car, it is important to understand the dealership's reputation, advertised prices, financing options, and purchase conditions.
 A little preparation can also help you compare different sellers without feeling pressured to make a quick decision.
