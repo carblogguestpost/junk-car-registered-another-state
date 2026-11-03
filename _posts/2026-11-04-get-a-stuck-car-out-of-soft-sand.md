@@ -21,7 +21,7 @@ Weekend desert drives are a favourite pastime for UAE residents and visitors. Bu
 
 The most important rule is to stop spinning the wheels. Pressing harder on the accelerator almost always makes things worse.
 
-  1. **Stop and switch off the throttle**. Do not keep revving. Page 8 of 1110 Guest Post Articles: Recovery Near Me
+  1. **Stop and switch off the throttle**. Do not keep revving.
   2. **Get out and look**. Check how deep each wheel is and whether the underside is resting on sand.
   3. **Check the surroundings**. Note the direction of firmer ground, the slope, and the time of day.
   4. **Make sure everyone has water**. In UAE heat, water matters more than the car.
@@ -47,7 +47,7 @@ If the vehicle is only slightly stuck and you have the right basics, you can try
 
 Call for help straight away if:
   - The car is buried to the axles or the underside is resting on sand 
-  - You are on a steep slope or soft dune face Page 9 of 1110 Guest Post Articles: Recovery Near Me
+  - You are on a steep slope or soft dune face
   - There is no firm ground nearby 
   - You do not have recovery gear 
   - Anyone is tired, dehydrated, or unwell The sun is setting and visibility is dropping
